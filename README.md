@@ -1,6 +1,6 @@
 # Yohoho.io-Hacks-Cheats
 Yohoho.io Hacks Cheats Ultimate Server
 
-https://combatroyale.com
+https://yohoho-io.biz
 
 with free hacks and free cheats...
